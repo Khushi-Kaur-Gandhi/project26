@@ -1,0 +1,1 @@
+10 rupees maggie packet
